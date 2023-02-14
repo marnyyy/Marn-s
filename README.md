@@ -38,4 +38,9 @@ ________________________________________________________________________________
 ###  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[Game page](https://marnyyy.github.io/)
 
 
+### You can ask me any question through [gbox](mdabucol@gbox.adnu.edu.ph)
+
+
+
+
 
