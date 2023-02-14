@@ -15,7 +15,7 @@ ________________________________________________________________________________
 
 
 ### My Goal is to be a succesful Youtuber ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤ
-Youtube channelㅤ</h3>
+Youtube channelㅤ
 <p align="left">
 <a href="https://www.youtube.com/c/marnph" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/youtube.svg" alt="marnph" height="30" width="40" /></a>
 </p>
